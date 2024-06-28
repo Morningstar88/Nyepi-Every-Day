@@ -1,7 +1,7 @@
 # Nyepi-Every-Day
 7 hours no traffic in Ubud on Sunday afternoon? Can Bali solve its traffic problem with regional no-traffic periods?
 
-Certainly! Here's a draft for the Nyepi-Every-Day scheme, addressing Bali's traffic problem. I've provided both English and Bahasa Indonesia versions:
+Here's a draft for the Nyepi-Every-Day scheme, addressing Bali's traffic problem. I've provided both English and Bahasa Indonesia versions:
 
 ---
 
